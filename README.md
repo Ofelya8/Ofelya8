@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ofelya8
+- 👀 I’m interested in interior desing
+- 🌱 I’m currently learning animation
+- 💞️ I’m looking to collaborate on interior design and visualization
+- 📫 You can reach me on Upwork here the the link https://www.upwork.com/freelancers/~0120fe4343b8dd2899
+- Thank you! :) 
