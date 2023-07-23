@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ofelya8
+- 👋 Hi, I’m Ofi
 - 👀 I’m interested in interior desing
 - 🌱 I’m currently learning animation
 - 💞️ I’m looking to collaborate on interior design and visualization
